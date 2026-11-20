@@ -1,1 +1,2 @@
 This activity is all about testing our creativity using the limited designs provided by the teacher 
+I learned many new things on canva during this activiy that increases my knowledge about editing. The challenegs i faced is all about the color scheme which I am really bad at, so to solve this problem I may copy some designs from my classamtes and internet also asking help for AI to suggest me some colors on my design. I could apply this if I may happen to encounter design activies and may improve more throughout my experiences
